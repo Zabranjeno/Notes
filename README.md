@@ -20,7 +20,7 @@ We go back to last wagon, where I peek out and see train falling off a bridge in
 Back at where my parents and me lived, a bunch of people goes into something resembling a celler in a yard in Stadionska cesta. I close the door after they all went in and tell my dad what I did, and he said he went there and locked the door.
 
 War started in Yugoslavia when my country, Croatia, seperated, and my dad, Željko loses his job, because he was working for a Serbian company, and we relied on mom, who was Serbian and worked in cadastre. 
-My 2nd floor neighbour, Dalibor Podrug, gives me a Motorola, and I mention action Maslenica on it, not knowing I shouldn't mention that. I likely tipped off the Serbs, and a lot more people died because of my stupidity.
+My 2nd floor neighbour, Dalibor Podrug, gives me a Motorola, and I mention action Maslenica on it, not knowing I shouldn't mention that. I likely tipped off the Serbs, and a lot more people died then should because of my stupidity.
 One autumn, we figured out we will stay out of firewood for the winter, so my dad decides to go into Serb occupied teritory for wood, with his Borba truck, and takes me with him.
 Cetnicks stop us, and one of them asks me if I know who he was. I said, I know, you're cetnik! He got pissed off and told me and dad to get out of the truck. They took my dad behind the truck,
 and one of them told me to turn around and concluded I have a nice little head. Next thing I know, we're sitting at Borba truck again, and he asks me again if I knew who he was, but this time
@@ -37,7 +37,7 @@ I get my first PC during highschool, my mom worked entire summer extra to be abl
 skipped classes. 
 
 Dad got a job at Slobodna Dalmacija as a driver, similar to his job at Borba, and he brings me Bug magazines, PC World, Byte, comic books to read. I overclock my Pentium 120 Mhz via jumpers to 133 MHz thanks to guide in Bug.
-My elementary school buddy, Domagoj Škifić, who I bored to tears by wanted to play at his PC before I got mine, infects me with my first virus. I meet a hacker called Nikola Prtenjača, who is showing me code obfuscation.
+My elementary school buddy, Domagoj Škifić, who I bored to tears by wanting to play at his PC before I got mine, infects me with my first virus. I meet a hacker called Nikola Prtenjača, who is showing me code obfuscation.
 
 While I go swimming one summer, on my way back I went to buy ice cream at area of my hometown called Relja, and I call the seller šiptar, not knowing it's an insult. I leave with a sore ass, not remembering what happened.
 
@@ -53,9 +53,9 @@ A week later, Slavica comes over to my apartment, and ends up accusing me of rap
 and I dump her.
 
 Mom pulls some connections and I enroll Geodesy in Zagreb. My room mates are Žan Glavan, a buddy from elementary school and Filip Fiala, who talks me into trying out gay sex. I never allowed him to nail me, and I couldn't get a hard on on a guy, but I wake up
-with foggy mind and a sore ass. For some reason, I can't figure out what happened. I end up sleeping with a Sandra, Ana Biloglav room mate, who later turned out to be a stripper. Ana also wants to sleep with me, but she has a bf, 
+with foggy mind and a sore ass. For some reason, I can't figure out what happened. I end up sleeping with Sandra, Ana Biloglav room mate, who later turned out to be a stripper. Ana also wants to sleep with me, but she has a bf, 
 and I don't wanna do that to some guy. I also get assaulted by 2 tall guys with knives while I'm dating a girl, but I run away like a coward and never find out what happened to my date. 
-I end up dating Ivana Brusar, who mentions I'm from Zadar in underpass while there were some baddies who follow me on my return, but some cops show up. Anyway I quit on college after 7 months "studying", and go back to Zadar.
+I end up in relationship with Ivana Brusar, who mentions I'm from Zadar in underpass while there were some baddies there who follow me on my return, but some cops show up. Anyway I quit on college after 7 months "studying", and go back to Zadar and break up with Ivana.
 
 In Zadar I meet Jadranka Bistričić, whome I deflower first weekend after oath in the army, but I end up raped multiple times in the army, and Jadranka ends up sleeping with everyone I knew.
 
@@ -66,17 +66,27 @@ I get a job at Tisak, as a driver and meet Branka, a single mom with a 4yo son, 
 
 I meet a guy called Marko Grbić, whome I spend time smoking pot with until he rapes me, hits some kid while I let him drive my dads car, and also gives me Trip, a drug.
 
-I get a job at hearing aids company, but I develop schizofrenia there, after which I end up ratting on Andrejs dad, who ends up in prison, and me fired.
+I get a job at hearing aids company, but I endure some kind of strange attack there on my psyche involving company pc and phone line, after which I end up ratting on Andrejs dad, who ends up in prison, and me fired.
+
+Andrej drives me to Zemunik, some kind of mental institution, but I don't remember 1 sec of my time spent there.
+
+I'm fine for a while after treatment in zemunik, but get shizoaffective personality disorder a year or two later and parents take me to hospital.
 
 I get schizofrenia meds but my devices are getting hacked for the next 20+ years, what I report to cops 13y later who seem to beat up Andrej, but to no effect.
 
-I'm working mostly as a security guard and as a cab driver for a short while. I learn cybersec by googling to protect myself, change roughly 20 gf's and 20 computers, and I end up bleeding from my behind once a month for the next 20y+ since I got schizo.
+I'm working mostly as a security guard and as a cab driver for a short while. I learn cybersec by googling to protect myself, and change roughly 20 gf's and 20 computers.
 
-I meet 2 girls, Sandra Dragutin and Antonija Čurković, in Sandra I fall inlove with, but she ends up hypnoing me and raping me under hypnosis while Antonia attempts the same, but I think unsuccesfully.
+Andrej is gifting me $10 coupon for cex.io so I can mine crypto. I buy hashing power and proceed to mine crypto for the next 15y.
 
-On Iskrica, I meet a girl called Mira Čačić. She buys me a husky and I move to Zagreb to live with her. We break up 7 months later after I suspect she tried to stay pregnant with someone else. 
+It seems some kind of command word is in my subconsciousness which makes me submissive and not remembering what happened while under that spell.
+
+I meet 2 girls, Sandra Dragutin and Antonija Čurković, in Sandra I fall inlove with, but she ends up using that word on me and raping me while Antonia attempts the same, but I think unsuccesfully.
+
+On Iskrica, I meet a girl called Mira Čačić. She buys me a husky and I move to Zagreb to live with her. We break up 7 months later after I suspect she tried to stay pregnant with someone else. Later on it ocurred to me Sandra told her how she can hypno me if she wants a baby.
 
 I return to Zadar but my dad also turns against me and ends up sleeping with Jadranka. I also suspect someone paid him to replace my dog with almost identical one. This new dog isn't healthy and doesn't like me.
+
+I meet a very ugly girl called Paula or Paola but she only wants to stay pregnant so I dump her without ever caming inside her.
 
 Filip is tricking me into marrying some girl. I fail to see the bride face because of veo, and I think I'm just a witness. To this day I still don't know if wedding went through and if I'm married or not.
 
@@ -113,30 +123,11 @@ He starts abusing me in every legal way possible, does little mischief to me wha
 decide not to arrest my dad. Dad calls the cops on me too, because I opened front door to see who was in front with a knife in my hand, and I end up taken to hospital where I explain, 100% calm, what happened, but psychiatrist concludes
 I'm agressive because I had a knife when I opened my door and I end up hospitalized for a month.
 
-Internet isn't a nice place for me. People say I'm rapist, pedo, terorrist, everything disgusting possible, and I can't tell if they mean it or are joking, or simple want to slander me because somebody hired them to do so. Everywhere I go, I seem to end up analysed, my behaviour sorted out and judged upon by strangers. Everyone seems to live in some sort of delusion I am alien or god or god knows what, and that they are in some big brother or something, but it honestly looks like organized crime to me, with people paid by bad guys to spread some sort of narrative. I can't get even my own brain in order, let alone sort out my life or what's happening in the world, but people either think it's my fault, or that I will fix all world issues magically or they think putting that kind of thing on my shoulders will either heal me or break me. Truth is, my illness isn't fixable, and what I actually want is for bad guys to end up in prison or dead. And yes, I mean my dad too. My life went beyond repair after I was 4yo, I don't understand why the torture and why everyone seems to think torturing me will help me recover. Both those psychologists and their accomplices belong in prison for molesting a mentally ill person. Since I'm still alive after everything you can guess I'm a mule, it's not these assholes torture that helped me with anything.
+Internet isn't a nice place for me. It seems all the people that raped me, literally or figuratively, plus Andrej, plus my ex gfs are spreading a narrative I'm rapist, pedo, terorrist, everything disgusting possible. And they're using the word
+to make me or trick me into confirming what they're saying. 
 
-20y+ after I got schizo I find out schizofrenia was caused to me by some government service, because I was googling pedo stuff. They also made me rat on my best friends dad, one cop slept with Jadranka on the count of claiming he was my friend, 
-and they hypnoed me and ordered me to work on security, so I got a job as a security guard, and custom windows I create they infect and through my work get other people in prison. 
-They also made me break up with every gf I ever had and forced me to stay single for almost 10y now. They're also actively preventing me from finding a new gf by telling people bad things about me. 
-They follow me everywhere online I go and instruct people how to deal with me. They also tried forcing me into killing my father. They basically made me their slave.
+Sometimes I feel a sting in my behind, as if I took a needle, and I end up bleeding from my behind a day later.
 
-To add some details, it seems I was hypnoed and ordered to do things since I was a toddler. When I developed schizofrenia 20y ago, I beleive it had to do with phone line being switched to line 2 at my work place, and I was ordered to google pedo stuff, 
-so they had excuse to cause me schizophrenia, make my word worthless after that, aaand tell people I'm pedo so they get everyone against me. I can maybe understand rapists, but my friends turned on me back in 96, when I was 16 and don't know what it is
-I did to them that was so terrible. So after they made me schizo, they hacked my PC for next 20+ years, told my parents, gays and everyone else I'm pedo, so I ended up raped over 200 times, they stopped me from finding a gf in the past 10y+, they made
-me a slave through hypnosis, they made a woman I wanted to marry rape me via that hypno command and sleep with my best friend, and lately they somehow cause physical harm to me via my PC, 
-and all because I googled like 3 pedo films 20+ years ago, and even tho I'm not a pedo nor I ever touched a child in my life. So I ended up developing security software and work as a guard as a result that hypno command and my software, if and when
-operating normally will actually serve to protect real bad guys.
+Sometimes I get the shakes as if I'm suffering some drug withdrawal.
 
-For some reason, I seem to come across all my ex women in my life when I go to store, but since they disgust me and I'm paranoid why are they there I don't even say hi, and it seems to be an excuse to rape me as I end up raped day later.
-Sometimes I feel a sting in my behind, as if I took a needle, and I end up bleeding from my behind a day later. Sometimes I get the shakes as if I'm suffering some drug withdrawal.
-If I am receiving injections, it is both against my will and since I don't remember any nurse coming over, nor taking any injections, it means they hypnoed me or drugged me to give me injection, even tho I regularly drink my meds.
-Meaning my father is either lying to psychatrists about my condition, or both him and the psychiatrists are a part of some organized crime group. I'm also willing to bet the command word in my subconscious that makes me submissive
-was some shrinks doing after my dad likely lied I was agressive. They usually give me antidepressants after raping me even tho I'm not the slightest depressed, so I end up in a good mood and laughing with a sore ass after getting raped.
-I also congratulated new year to my 2nd floor neighbour that raped me.
-
-Since I got attacked at IT fair back in 96, and inside OS/2 console, an OS I was a shill of, and I disliked Windows, there is a possibily there is someone from tech world behind all of this. Maybe Microsoft, maybe IBM, maybe BUG or some other
-IT magazine. Who ever it was, it made sure I get fucked from all sides. Who ever it could turn against me, it did. I assume it kept following me online everywhere I went and telling people things and maybe forcing me to confirm it. It also seems
-the hackers it hired actually all ended up quitting their jobs, but since they signed NDAs, they couldn't tell anyone about what was going on.
-
-I also have a theory Zadar mafia, a part of which is my father, set me up with a "gf". A lady which comes to visit me once a month, then my dad tells me the hypno word, then I end up bleeding from my behind after her visit. It's possible shes trans.
-I don't even know what my gf looks like, and they seem to prevent all my efforts of finding a normal gf.
+I got email from cex.io saying they will no longer do mining for customers, so I make a crypto wallet out of usb, transfer money to it, but that usb disappears and reapears 15 min later formatted.
