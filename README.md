@@ -130,4 +130,4 @@ Sometimes I feel a sting in my behind, as if I took a needle, and I end up bleed
 
 Sometimes I get the shakes as if I'm suffering some drug withdrawal.
 
-I got email from cex.io saying they will no longer do mining for customers, so I make a crypto wallet out of usb, transfer money to it, but that usb disappears and reapears 15 min later formatted.
+I got email from cex.io saying they will no longer do mining for customers, so I make a crypto wallet out of usb, transfer money to it, but that usb disappears and reapears 15 min later formatted. There was some BTC and at least 13 eth on it.
